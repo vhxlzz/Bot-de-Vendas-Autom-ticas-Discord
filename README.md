@@ -1,0 +1,1 @@
+# Bot-de-Vendas-Autom-ticas-Discord
